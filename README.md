@@ -1,3 +1,3 @@
 - 👋 Hi, I’m ModoSudo I like I like to create applications
 - 👀 I’m interested in frontend, mobile apps, 
-- 📫 How to reach me modosudo@gmail.com
+-- My contact https://www.instagram.com/modosudo 
